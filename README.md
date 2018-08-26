@@ -1,0 +1,2 @@
+# mojerepozytorium
+nowe pierwsze
